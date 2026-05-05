@@ -1,4 +1,4 @@
-
+grow a garden new Script is the best grow a garden Script, featuring instant win and auto-collect. Safe and powerful for all your needs.
 
 
 
